@@ -1,1 +1,0 @@
-# CNTT1_NguyenHongVu_Nhap-Mon-CNTT_BaiThiThu
